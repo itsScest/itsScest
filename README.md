@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming and music
 - 🌱 I’m currently learning smth
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me @scest on discord
+- 📫 How to reach me, @scest on discord
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: uh, idk
 
